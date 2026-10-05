@@ -1,1 +1,1 @@
-https://divyaprabha357.github.io/Rolex/
+https://adikou09.github.io/Rolex-Landing-Page/
